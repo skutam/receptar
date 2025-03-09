@@ -5,7 +5,7 @@
 
 ## Ingrediencie
 
-- Riža jasmínová – 300 g
+- Ryža jasmínová – 300 g
 - Maslo (Na vyprážanie) - 50 g
 - 1 veľká cibuľa
 - Cesnak – 3 strúčiky
