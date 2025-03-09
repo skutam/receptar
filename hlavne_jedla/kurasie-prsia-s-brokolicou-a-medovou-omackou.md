@@ -1,4 +1,4 @@
-# Fašírky (Karbonátky)
+# Kuracie prsia s brokolicou a medovou omáčkou
 
 ![kuracie-prsia-s-brokolicou-a-medovou-omackou](../assets/kurasie-prsia-s-brokolicou-a-medovou-omackou.jpg "Kuracie prsia s brokolilcou a medovou omackou")
 ---
