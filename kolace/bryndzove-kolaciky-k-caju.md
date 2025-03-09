@@ -1,5 +1,8 @@
 # Bryndzové koláčiky k čaju
 
+![bryndzove-kolaciky-k-caju](../assets/bryndzove-kolaciky-k-caju.jpg "Bryndzové koláčiky k čaju")
+
+
 ---
 
 ## Ingrediencie
